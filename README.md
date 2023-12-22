@@ -1,1 +1,1 @@
-# Islamijj
+# IslamiQura
